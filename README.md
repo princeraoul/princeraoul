@@ -2,7 +2,7 @@
 - 👀 I’m interested in STEMs
 - 🌱 I’m currently learning software engineering 
 - 💞️ I’m looking to collaborate on IT
-- 📫 How to reach me +237679788552
+- 📫 How to reach me +237697073349 
 - 😄 Pronouns: Love research 
 - ⚡ Fun fact: open to learning 
 
